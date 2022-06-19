@@ -1,3 +1,3 @@
-# Zolo
-
-### Hey im zolo known as a python developer
+<h1 align="center">
+  Zolo ☢️
+</h1>
