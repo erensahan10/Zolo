@@ -8,9 +8,7 @@
 
 ### u can support me on this
 
-**𝚣𝚘𝚕𝚘#7023 on [Discord](https://discord.gg/7n2QvDPcu8)
-zolo [YouTube] (https://www.youtube.com/channel/UCdnBjYLRGQArK9BI8KRMOqg)
-zolo7023 [Instagram] (https://www.instagram.com/zolo7023/)
+<a href="https://www.youtube.com/c/stillsmug" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/youtube.svg" alt="stillsmug" height="30" width="40" /></a>
 
 ### wanna know more? Join my server!
 [Discord] (https://discord.gg/7n2QvDPcu8)
