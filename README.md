@@ -9,8 +9,8 @@
 ### u can support me on this
 
 **𝚣𝚘𝚕𝚘#7023 on [Discord](https://discord.gg/7n2QvDPcu8)
-zolo [Youtube] (https://www.youtube.com/channel/UCdnBjYLRGQArK9BI8KRMOqg)
+zolo [YouTube] (https://www.youtube.com/channel/UCdnBjYLRGQArK9BI8KRMOqg)
 zolo7023 [Instagram] (https://www.instagram.com/zolo7023/)
 
 ### wanna know more? Join my server!
-[Discord server] (https://discord.gg/7n2QvDPcu8)
+[Discord] (https://discord.gg/7n2QvDPcu8)
